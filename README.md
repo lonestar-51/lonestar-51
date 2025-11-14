@@ -1,16 +1,15 @@
-## Hi there 👋
+![alt text](https://files.catbox.moe/xxb6cr.png) 
 
-<!--
-**lonestar-51/lonestar-51** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![alt text](https://files.catbox.moe/45h5x4.png)
 
-Here are some ideas to get you started:
+![alt text](https://files.catbox.moe/gz2rlk.gif) .  ᛝ ＳＩＧＮ ＡＴＡ  [#ata](https://lonestar-51.atabook.org/)  .   ![alt text](https://files.catbox.moe/lxsq1r.webp) 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![alt text](https://files.catbox.moe/wfdcyk.gif)  .    ۶ৎ ![alt text](https://files.catbox.moe/sl6xvt.webp) ʙʏE̠ᴏʟ  ![alt text](https://files.catbox.moe/75xfd0.gif)  .  𓏵  .   𖹭
+
+ᯓ★ ⋮ ⌗  ᴍɪɴᴏʀ ᢉ𐭩  ⸝⸝ sʜᴇ / ʜᴇʀ ‹𝟹 ![alt text](https://files.catbox.moe/09t7w2.webp) 
+
+
+'' 𐔌   ᛝ   mine , empty mind .ᐟ  𐂯 '' ![alt text](https://files.catbox.moe/9sfqg2.gif) 
+
+
+![alt text](https://files.catbox.moe/ibfz1u.png)
